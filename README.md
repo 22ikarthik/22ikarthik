@@ -1,4 +1,4 @@
-👋 Hi, I’m Ishwar Karthik - I'm a rising senior (high school), enrolled in the IB Diploma Programme at the American School of Doha. I'm Indian (born in Chennai),
+👋 Hi, I’m Ishwar Karthik (he/him). I'm a rising senior (high school), enrolled in the IB Diploma Programme at the American School of Doha. I'm Indian (born in Chennai),
 but have lived in Doha, Qatar for nearly my entire life. I was born on 23 November 2003, so right now I'm 17.
 - 👀 I’m interested in math, computer science, and physics at the moment. All of these interest me, and so at the moment I'm trying to learn as much of these 3 as possible
 to better enable me to decide on a college major.
